@@ -1,3 +1,2 @@
-Sou do colegio joao de faria pioli e estou fazendo aula de pensamento computacional
-Aula da professora Arianne
+Nooossinhorinha das pedrinhas de gelo qi fri eh esse????
 Perfil de Livia e Enzo 
